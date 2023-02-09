@@ -1,1 +1,1 @@
-I love my self.
+God is good.
