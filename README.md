@@ -1,2 +1,1 @@
-My first readme updated
-I love myself.
+I love my self.
